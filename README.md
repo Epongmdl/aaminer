@@ -1,0 +1,2 @@
+# aaminer
+Mining free
